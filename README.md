@@ -1,2 +1,2 @@
-## My favorite movie
+# My favorite movie
 My first repository

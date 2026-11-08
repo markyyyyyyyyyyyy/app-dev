@@ -2,7 +2,6 @@
 ## About the Series
 ### My Favorite Characters
 
-**Stranger Things**
 ***Dustin is my favorite character.***
 
 ## Favorite Characters
